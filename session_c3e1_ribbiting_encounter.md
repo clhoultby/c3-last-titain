@@ -8,7 +8,7 @@ Two people on trial
 
 
 ## Notes
-All part of a carvan heading to city of Oma.  
+All part of a caravan heading to city of Oma.  
 
 Hoots 
 - flying above caravan 
@@ -36,10 +36,8 @@ Aranris
 
 
 ## Battle
-Little girl grapped by frogs
-
-All frogs attempted to attack Xaltor Nalvash
-- assasination attempt?
+Little girl grabbed by frogs. All frogs attempted to attack Xaltor Nalvash
+- assassination attempt?
 
 
 ## Oma

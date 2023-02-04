@@ -1,4 +1,4 @@
 # Xaltor Nalvash
 
-Forgein Relations Amabassador for Thoum.
+Foreign Relations Ambassador for Thoum.
 
