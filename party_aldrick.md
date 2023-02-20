@@ -1,0 +1,4 @@
+- Keen academic
+- Relatively non magic
+- Greatly interested in residuum seminars
+- Has theories on residuum traces in blood being linked to magic efficacy

@@ -13,4 +13,4 @@ Invisible friends is named something like gee
 
 ## Researching anicent gods
 - History of the gods / asmodiaus 
-- connection to inferal children
+- connection to infernal children
