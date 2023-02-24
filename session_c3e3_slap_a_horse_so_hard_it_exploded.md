@@ -34,7 +34,7 @@ Elendar has been a good friend to Hoots and is the first one to coin the name Ho
 
 Hoots has vague memories of childhood.
 
-"Elisted in army, last memory is of a mission outside the city, of dark woodlands, 
+"Enlisted in army, last memory is of a mission outside the city, of dark woodlands, 
 Constriction,
 rope, 
 pain everywhere!"
@@ -48,11 +48,11 @@ Drunk KPV says call her Paal
 
 ## Letter
 Aldrick receives a letter from Xaltor Navash requesting Aldrick attends him and brings trusted companions to the Glass Embassay, 
-All three nations have a presence in the Embassy. Embassy resembles a fortifide mansion. 
+All three nations have a presence in the Embassy. Embassy resembles a fortified mansion. 
 
 
-# Meting with Xaltor Nalvash in Glass Embassy 
-Was in Omr to attebnd Nation joint project
+# Meeting with Xaltor Nalvash in Glass Embassy 
+Was in Omr to attend National Joint Projects
 
 Secondary goal: missing people disappearing in the city for some months including the high profile member of the Thoum poltical elite
 
