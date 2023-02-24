@@ -17,3 +17,15 @@ Researching owling fighters
 - Thumn - largest airforce
 - Agolos - largest navy
 
+
+### Hoots & Aranis Conversation in Laughing Gnome C3S3
+Elendar has been a good friend to Hoots and is the first one to coin the name Hoots
+
+Hoots has vague memories of childhood.
+
+"Elisted in army, last memory is of a mission outside the city, of dark woodlands, 
+Constriction,
+rope, 
+pain everywhere!"
+
+"Been searching for his people and what happened to him since"

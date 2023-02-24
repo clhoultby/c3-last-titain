@@ -5,10 +5,19 @@ Arrived to city via a flying elevator platform.
 
 Giant turtle is rumoured to be an avatar of a Titan
 
-# Tavern - Laughing Gnome
+## Tavern - Laughing Gnome
 Owners - Toby & Poppy
 NPV & Fee are employed in exchange for discount
+75% off rooms.
 
-# Unversity 
+
+## Unversity 
  Lecturer: Igigan Ushi
  
+
+ ## Glass Alliance 
+ Guardsmen that responded to the incident with the horse construct were from Glass Alliance. 
+
+## Construct Malfunctions 
+Guardsmen responded to the horse construct attack say that there have been a number of Construct Malfunctions in omar over the last few weeks.
+
