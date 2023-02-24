@@ -10,8 +10,7 @@ Ofeliya killed the horse construct with a slap.
 Guards said that there had been a number of constructs malfunctioning.  Guards belong to Glass alliance. 
 
 Construct manufactor: 
-Steamwise solutions Store Front 
-Bertulf Beornfreid - owner
+Steamwise solutions Store Front: Bertulf Beornfreid - owner
 
 Hoots shares that he can't remember his name.
 
@@ -45,3 +44,31 @@ pain everywhere!"
 
 ### KPV
 Drunk KPV says call her Paal
+
+
+## Letter
+Aldrick receives a letter from Xaltor Navash requesting Aldrick attends him and brings trusted companions to the Glass Embassay, 
+All three nations have a presence in the Embassy. Embassy resembles a fortifide mansion. 
+
+
+# Meting with Xaltor Nalvash in Glass Embassy 
+Was in Omr to attebnd Nation joint project
+
+Secondary goal: missing people disappearing in the city for some months including the high profile member of the Thoum poltical elite
+
+Glass Alliance have found nothing.
+
+An Thoumn investigator, Sieb Kemp, has gone missing who was already looking.   Their last known location was at a warehouse in Labour Ward.
+
+Missing people, all were information runners:
+Talan Pearce
+Nessa Keast
+Taran Trevose
+
+
+
+
+
+
+
+
