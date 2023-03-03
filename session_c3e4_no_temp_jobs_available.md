@@ -11,7 +11,7 @@ Hoots attempts to buy a smoke bomb but doesn't have enough gold
 ## Labour Ward 
 Elendar leads us towards the warehouse towards mid day 
 
-Two thugs stood outside warehouse.
+Two thugs stood outside warehouse, Dim and Tim.
 
 Elendar and Aranris sneak round the warehouse and scout while KPV distracts the guards. Elendar peers through a window &  spots a well dressed man and a mechinical construct dog
 - Odeka is in the warehouse
