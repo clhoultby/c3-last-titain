@@ -26,3 +26,7 @@ Guardsmen responded to the horse construct attack say that there have been a num
 All three nations have a presence in the Glass Embassy. Embassy resembles a fortifide mansion. 
 
 ## Ibian post is a post service syndicate 
+
+
+## Safra 
+Owner of Discount potions and scrolls

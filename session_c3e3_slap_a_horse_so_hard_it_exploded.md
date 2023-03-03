@@ -61,6 +61,7 @@ Glass Alliance have found nothing.
 An Thoumn investigator, Sieb Kemp, has gone missing who was already looking.   Their last known location was at a warehouse in Labour Ward.
 
 Missing people, all were information runners:
+Sieb Kemp       - Thoumn investigator
 Talan Pearce
 Nessa Keast
 Taran Trevose
