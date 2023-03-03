@@ -3,9 +3,9 @@
 ## Market trip 
 Aldrick buys cogs, copper wire and scrap metal. Aranris deftly lifts 10gp from a shopper and gifts it to Aldrick to buy a shield. 
 
-Ofeliya purchases a healing potion from discount after a lend from hoots in exchange for a touch of her arm
+Ofeliya purchases a healing potion from discount after a lend from hoots in exchange for a touch of her arm. 
 
-Hoots attempts to buy a smoke bomb but doesn't have enough gold
+Hoots attempts to buy a smoke bomb but doesn't have enough gold.  Hoots lies about the amount of gold he has and gets a smoke bomb. 
 
 
 ## Labour Ward 
