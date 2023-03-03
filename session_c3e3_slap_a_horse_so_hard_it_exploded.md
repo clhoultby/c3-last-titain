@@ -65,10 +65,5 @@ Talan Pearce
 Nessa Keast
 Taran Trevose
 
-
-
-
-
-
-
-
+Concern in Remontis, they are pushing the investigation
+First disappearance approximately 2 months ago
