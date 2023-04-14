@@ -30,3 +30,6 @@ All three nations have a presence in the Glass Embassy. Embassy resembles a fort
 
 ## Safra 
 Owner of Discount potions and scrolls
+
+## Redamnes 
+Caretakers of the giant turle 
